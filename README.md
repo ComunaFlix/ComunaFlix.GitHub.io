@@ -14,4 +14,8 @@
 | 4 | Juventude | Youth | 芳华 | [https://youtu.be/YHHT27DQ0b4](https://youtu.be/YHHT27DQ0b4) | [https://drive.google.com/...](https://drive.google.com/drive/folders/1RrgsL9stESWT80v1_0P-LPsKu9D2dfYi?usp=sharing)
 | 5 | Os Chineses | The Chineses | La Chinoise | Bloqueado/Blocked | [https://drive.google.com/...](https://drive.google.com/drive/folders/1sUJsjtdEOzzQEfdROX1-DyDc35D_jvEC?usp=sharing)
 | 6 | 1921 (2021) | 1921 (2021) | 1921 | Bloqueado/Blocked | [https://drive.google.com/...](https://drive.google.com/drive/folders/1XeZSn1lbSAMiJ8pM-oIBauIMy5Xt5UxX)
-| 10 | A Era do Despertar | The Age of Awakening | 觉醒年代 | [https://youtu.be/cI8mKJmDUYs...](https://youtu.be/cI8mKJmDUYs?list=PLGdeVB4h7_6SwFRrSukO4OU2dmYyOa7Gk) | Muito Grande/Big size
+| 7 | Camarada Kim vai voar | Comrade Kim Goes Flying | 김동무는 하늘을 난다 | Bloqueado/Blocked | [https://drive.google.com/...](https://drive.google.com/drive/folders/1UkQ99OnkMcGxKJ9ES5L-m1IB4sLDLYfR) |
+| 8 | A Batalha no Lago Changjinn | The Battle at Lake Changjin | 长津湖 | Bloqueado/Blocked | [https://drive.google.com/...](https://drive.google.com/drive/folders/1YEYURAREpfH81IXRJhPq80tasSGnL940)
+| 9 | O Circo (URSS 1936) | Circus (USSR 1936) | Цирк | Bloqueado/Blocked | [https://drive.google.com/...](https://drive.google.com/drive/folders/1FzQo269UC9fkH0TA-Mrzy2G8LmYQq7K4)
+| 10 | A Era do Despertar | The Age of Awakening | 觉醒年代 | [https://youtu.be/cI8mKJmDUYs...](https://youtu.be/cI8mKJmDUYs?list=PLGdeVB4h7_6SwFRrSukO4OU2dmYyOa7Gk) | Muito Grande/Big size |
+| 11 | Terra a Deriva 2 | The Wandering Earth 2 | 流浪地球2 | [https://youtu.be/X_gSSrUoNk0](https://youtu.be/X_gSSrUoNk0) | [https://drive.google.com/...](https://drive.google.com/drive/folders/1REC0LoLTzXsT0lQGEluTzTikY_NJ_LRB) |
